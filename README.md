@@ -2,7 +2,7 @@
 
 Soy una persona proactiva y organizada, apasionada por la tecnología, la programación y analisis de datos. Me encanta aprender cosas nuevas. Actualmente estudio Ingeniería en Informática en la sede de Puente Alto de Inacap, donde curso el 6º semestre.
 
-Algunas de las tecnologias que manejo
+Algunas de las tecnologias que manejo.
 				
 				
 				
