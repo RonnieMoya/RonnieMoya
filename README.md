@@ -11,31 +11,11 @@ Algunas de las tecnologias que manejo.
 				
 				
 				
-![image](Programming Languajes	Frontend	Backend	RBMS	Dev tools
-				
-				
-				
-				
-				
-				
-				
-				
-				
-				
-![image](Programming Languajes	Frontend	Backend	RBMS	Dev tools
-				
-				
-				
-				
-				
-				
-				
 				
 				
 				
 ![image](https://github.com/user-attachments/assets/5d4b53bd-4175-4756-b274-8909c7b41896)
-)
-)
+
 				
 
 
