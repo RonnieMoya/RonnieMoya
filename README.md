@@ -22,7 +22,19 @@ Algunas de las tecnologias que manejo.
 				
 				
 				
-![image](https://github.com/user-attachments/assets/2a93adcf-3bcd-4345-9ace-948860af01a4)
+![image](Programming Languajes	Frontend	Backend	RBMS	Dev tools
+				
+				
+				
+				
+				
+				
+				
+				
+				
+				
+![image](https://github.com/user-attachments/assets/5d4b53bd-4175-4756-b274-8909c7b41896)
+)
 )
 				
 
